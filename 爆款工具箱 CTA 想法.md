@@ -170,7 +170,17 @@
 4. [从0到1做起微信公众号全教程**](https://link.zhihu.com/?target=http%25253A//study.163.com/course/introduction/1003728017.htm)：从0到1做起微信公众号全教程。分享公众号运营过程的一些小技能，精简有道，适合刚入门做微信公众号的新手。
 5. [iH5视频教程**](https://link.zhihu.com/?target=http%25253A//study.163.com/course/introduction/1280009.htm)：IH5是制作新媒体着陆页的最佳入门工作，可以想象的空间非常大，对于新手来说会稍微有一些门槛，但是要想做出交互更强的着陆页，非iH5不可。课程为官方出品，讲解流畅，技术细节覆盖全面。
 
-如果你想学习更多全栈新媒体运营的神技巧，可以加入半撇私塾的[免费课程**](https://link.zhihu.com/?target=http%3A//learn.bpteach.com/course/100%3Futm_source%3Dgithub.com%26utm_medium%3Dreferral%26utm_campaign%3Dmkg101-bp%26utm_term%3Dnew-media-toolkits%26utm_content%3Dtextlink)。
+以上就是我们新媒体工具箱的内容了。
+
+如果你想学习更多全栈新媒体运营的神技巧，可以加入半撇私塾的[新媒体课程**](https://link.zhihu.com/?target=http%3A//learn.bpteach.com/course/100%3Futm_source%3Dgithub.com%26utm_medium%3Dreferral%26utm_campaign%3Dmkg101-bp%26utm_term%3Dnew-media-toolkits%26utm_content%3Dtextlink)。
+
+**原价 299 元，仅限本周免费体验！**
+
+想要了解更多？   ↓↓↓
+
+[![image.png](http://upload-images.jianshu.io/upload_images/1660537-2619d9ddc865588b.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)](https://learn.bpteach.com/course/100)
+
+
 
 CHANGELOG:
 
